@@ -1,0 +1,1 @@
+Add Lemon Juice to a glass of soda. Then add ice for freshness and finally mint leaves for garnishing the drink.
